@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ody16
+- 👀 I’m interested in kpop, art, webtoons, crafts.
+- 🌱 I’m currently learning communication science.
+- 💞️ I’m pansexual
+- 📫 I speak Spanish, French, English, and I'm Learning Korean and Italian.
